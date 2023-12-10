@@ -1,1 +1,1 @@
-![exorcisindemon](https://github.com/exorcisindemon/exorcisindemon/assets/142449382/278e4d58-89fe-42f6-9971-449533e97f00)
+![exorcisindemon](https://github.com/exorcisindemon/exorcisindemon/assets/142449382/7bb9e919-33e8-4945-bf64-e208ae5c68a2)
